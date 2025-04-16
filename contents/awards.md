@@ -1,13 +1,13 @@
-- National Scholarship of Graduate Student, 2024.
+-中国电信奖学金·天翼奖（全国98位）, 2022.
 
-- First-prize Scholarship of CUMT, 2024.
+- 中国电信奖学金·飞Young奖（全校一位）, 2021.
 
-- First-prize Scholarship of CUMT, 2023.
+- 南开大学研究生公能奖学金, 2023，2024.
 
-- Freshman Scholarship of CUMT, 2022.
+-浙江财经大学才苑奖学金（每学院一位）, 2020.
 
-- Excellent Graduation Project of Jiangsu Province, 2022.
+- 国家奖学金, 2021.
 
-- First-prize Enterprise Scholarship of CUMT, 2020.
+-浙江财经大学学生新闻主编, 党委宣传部 学生记者负责人，2019-2020.
 
-- First-prize Scholarship of CUMT, 2019.
+- 浙江财经大学棋社副社长, 2019.
